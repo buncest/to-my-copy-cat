@@ -4,4 +4,4 @@ hi, I haven't spoken up about it because I know ur js doing this to spite me, bu
 
 please GET a life, because for these past few months all I've been doing was moving on because if I stayed in that relationship things would get worse and we would've both just gotten hurt. so, for the love of God, stop trying to ragebait me LMFAO cuz u look childish asf 😭😭😭😭😭😭😭
 
-but if u wanna keep going, I can keep going with my thing too 😂. have a good day LMFAO. 
+but if u wanna keep going, I can keep going with my thing too 😂. have a good day angel. 
